@@ -1,2 +1,13 @@
-# donate
-links to financial support for me
+Hi! 
+If you want give me money - 
+
+test..
+test..
+
+
+
+
+
+
+
+hi ?
