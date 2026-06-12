@@ -1,6 +1,11 @@
 Hi! 
+I'm glad you came here ^^
 
-If you want give me money - 
+You can donate any amount from a dollar on my Itch.io
+https://robot0531.itch.io/limimini
+
+
+or use cryptocurrency.
 
 ---------------USDT----------------
 
