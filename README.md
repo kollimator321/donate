@@ -4,6 +4,9 @@ I'm glad you came here ^^
 You can donate any amount from a dollar on my Itch.io
 https://robot0531.itch.io/limimini
 
+Or buy a membership on my Patreon
+https://www.patreon.com/robot0531
+
 
 or use cryptocurrency.
 
